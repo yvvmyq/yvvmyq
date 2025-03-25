@@ -11,10 +11,19 @@
 
 ![cacaobanner](https://github.com/user-attachments/assets/cca3d5d8-6b35-447c-9bd8-15e31abe5b75)
 ### Anyone or Anycookie i welcome to c+h
-though my attention may split, as i usually let this game run while i do my work.
+_though my attention may split, as i usually let this game run while i do my work._
 
-I love seeing Cacao barbie'd around other cookies *so i very support mono/poly cacao i just like to see him loved,*
-### STRICTLY NO INCENTUOUS SHIPS inc Cacao+: Caramel Arrow, Choco Chip, Dark Choco. 
+### I AM [TAKEN](https://www.patreon.com/nichi_ere).
+> so please don't take shipping too seriously.
+
+I love seeing Cacao barbie'd around other cookies *so i very support mono or even poly cacao, i just like to see him spoiled rotten.*
+
+${{\color{Goldenrod}\Huge{\textsf{DNI PROSHIP\}}}}\$
+
+
+And, no. Beast x Ancient is not proship. SOME of you just can't take toxic yuri.
+
+
 
 ![cacao](https://github.com/user-attachments/assets/15bd67f8-714a-43f8-a243-9bead7958409)
 
@@ -33,7 +42,7 @@ I love seeing Cacao barbie'd around other cookies *so i very support mono/poly c
 
 
 
-okay thanks bye
+ok bye
 
 ![cacaobanner](https://github.com/user-attachments/assets/cca3d5d8-6b35-447c-9bd8-15e31abe5b75)
 
