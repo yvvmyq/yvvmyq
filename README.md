@@ -21,7 +21,7 @@ I love seeing Cacao barbie'd around other cookies *so i very support mono or eve
 ${{\color{Goldenrod}\Huge{\textsf{DNI PROSHIP\}}}}\$
 
 
-And, no. Beast x Ancient is not proship. SOME of you just can't take toxic yuri.
+And, no. Beast x Ancient **is not proship**. Toxic? **Yes.** Doesn't mean i advocate it. Learn to detach, people.
 
 
 
